@@ -1,4 +1,6 @@
 Button 2 timezone change
+https://lilygo.cc/products/t-display-s3?variant=42284559827125
+<img width="1370" height="815" alt="Screenshot 2025-08-17 at 23 19 15" src="https://github.com/user-attachments/assets/917cafe6-4eca-4ba6-a1b5-e9f92d21db8f" />
 
 
 https://lilygo.cc/products/t-display-s3?variant=42284559827125
